@@ -11,5 +11,4 @@ Meu nome é Rayanne Vitória
 rayannevito06@gmail.com
 
 
-
-!{}(https://media1.tenor.com/m/JdOhknjO1acAAAAC/way-to-go-thumbs-up.gif)
+![](https://media1.tenor.com/m/JdOhknjO1acAAAAC/way-to-go-thumbs-up.gif)
